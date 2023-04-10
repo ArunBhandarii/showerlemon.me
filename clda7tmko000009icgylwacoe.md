@@ -26,3 +26,5 @@ Artificial Intelligence is one of the most exciting and rapidly-evolving fields 
 ### Technology and stuffs
 
 The field of computer science is constantly evolving, with new technologies and advancements emerging on a regular basis. Our blog will be covering a wide range of topics related to computer science and technology, including the latest developments in programming languages, software engineering, and computer hardware. We will also be discussing the impact of technology on society and the future of the field.
+
+> Anything and everything related to something in the universe.
