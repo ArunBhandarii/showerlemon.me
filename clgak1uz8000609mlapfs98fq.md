@@ -30,7 +30,7 @@ This skewed and unattainable version of beauty is further perpetuated by an algo
 
 Despite these criticisms, TikTok continues to generate revenue by making people lust over synthetic beauty. Other apps are then forced to follow suit, creating a vicious cycle of hypersexualization and unrealistic beauty standards. Young teens and children are often the most vulnerable to these effects, as they are still developing their self-image and are highly influenced by the media they consume.
 
-![What's TikTok doing to our kids? Concerns from a clinical psychologist –  New York Daily News](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQXx5zwqxlyXa0ewTmGcqJNFKDUGoH4c_GlrFvjGBF7xvkt_NwaXXjxPc0sVfXvtwwuZfc&usqp=CAU align="left")
+![Should I Let My 11-Year Old Kid Use Tiktok?](https://famisafe.wondershare.com/images/article/2021/6/is-tiktok-safe-to-use-1.png align="center")
 
 The proliferation of child sexual exploitation material (CSEM) is a serious issue that is not only facilitated by illegal activities but also by the production and distribution of legal adult content that is marketed using exploitative terms such as "**teen**," "**young**," and "**tiny**." These terms are deliberately chosen by companies to attract consumers who are seeking CSEM, despite the fact that the actors in the videos are adults. In some cases, actors are even dressed in schoolgirl outfits to give the impression that they are underage.
 
