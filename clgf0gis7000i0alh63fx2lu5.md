@@ -26,7 +26,7 @@ If you don't understand the reason why something exists, you may try to find ano
 
 This article aims to shed light on where our fears come from, why we feel the way we do, and how understanding these fears can help us overcome them. By understanding the reasons for our fears, we can begin to dismantle the dysfunctional beliefs or constructs we have adopted to cope with them.
 
-The second part delves into the workings of the brain. However, in order to fully comprehend this information, it is necessary to view ourselves as a third person. If we are too caught up in our beliefs and worldview, we will be unable to process the information effectively. In order to fully comprehend the concepts discussed in this video, it is important to maintain an active awareness and engage in healthy habits like working out and eating well.
+The second part delves into the workings of the brain. However, in order to fully comprehend this information, it is necessary to view ourselves as a third person. If we are too caught up in our beliefs and worldview, we will be unable to process the information effectively. In order to fully comprehend the concepts discussed in the article, it is important to maintain an active awareness and engage in healthy habits like working out and eating well.
 
 While it may be easy to identify with anxieties related to fitting in or other surface-level concerns, understanding the processes of the brain requires a deeper understanding that stems from the more advanced parts of our brain. If we remain caught up in the more primitive, impulsive parts of our brain, we will be unable to fully comprehend these concepts.
 
